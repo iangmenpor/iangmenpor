@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there :>
+i´m learning a lot right now and excited to work in innovation
 <!--
 **iangmenpor/iangmenpor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
