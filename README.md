@@ -1,7 +1,8 @@
 ### Hi there :>
 i´m learning a lot right now and excited to work in innovation
 
-![image](https://github.com/user-attachments/assets/a17a0d74-eed7-469e-9865-67083ed7eb55)
+![image](https://github.com/user-attachments/assets/54d664cc-30ef-448d-9a63-4cfcea7864a7)
+
 
 <!--
 **iangmenpor/iangmenpor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
